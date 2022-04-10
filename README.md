@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @its-kushala
-- 👀 I’m interested in coading,numismatics,and exploring...
+- 👀 I’m interested in coding,numismatics.
 - 🌱 I’m a computer science & engineering student
 - 🏛️ Studying @malnad college of engineering
 - 📫 How to reach me - kushikushala2020@gmail.com
